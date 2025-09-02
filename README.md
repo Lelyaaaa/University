@@ -1,2 +1,2 @@
 # University
-Here are some of my university tasksk and other stydying work
+Here are some of my university tasks and other stydying work
